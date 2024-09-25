@@ -1,2 +1,1 @@
-# elevador![Captura de tela 2024-09-25 143104](https://github.com/user-attachments/assets/0d6b984b-c932-48e4-af5b-379bf49176c6)
-![Captura de tela 2024-09-25 143104](https://github.com/user-attachments/assets/57bc6ac5-cad2-48a9-aaf3-55ace0064e93)
+# elevador!![Captura de tela 2024-09-25 145413](https://github.com/user-attachments/assets/7cb6c499-65a0-4227-83cc-5b136b4197f7)
